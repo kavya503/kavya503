@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kavya503
+- 👋 Hi, I’m @REDDYKAVYA
 - 👀 I’m interested in DATA
 - 🌱 I’m currently learning Advanced level of visualization to help Businesses
 - 💞️ I’m looking to collaborate with stakeholders
